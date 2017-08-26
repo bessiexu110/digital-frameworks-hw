@@ -43,7 +43,7 @@ Twenty-one other sites are still under review. There was no information about wh
 
 “If Secretary Zinke expects Americans to be thankful because he wants to merely erase large chunks of national monuments instead of eliminating them entirely, he is badly mistaken,” said Jennifer Rokala, executive director of the Center for Western Priorities in a statement.
 
-
+![27 monuments under trump s review list](https://user-images.githubusercontent.com/29659865/29737763-49d96608-8a46-11e7-94e2-a557b2e0699c.jpg)
 
 
 # Process:
